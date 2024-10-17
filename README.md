@@ -1,4 +1,4 @@
-### Prazer me chamo Sérgio, à sua disposição 👋
+### Prazer me chamo Sergio, à sua disposição 👋
 
 <div>
   
